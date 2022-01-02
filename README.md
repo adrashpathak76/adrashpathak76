@@ -1,4 +1,4 @@
-### HLO I AM ADRAH PATHAK 👋
+### HLO I AM ADRASH PATHAK 👋
 
 Here are some ideas to get you started:
 
